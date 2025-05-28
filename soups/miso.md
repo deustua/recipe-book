@@ -1,0 +1,4 @@
+-1 box miso
+-1 box soba
+-1/2 box seaweed
+-1 whole tofu block
